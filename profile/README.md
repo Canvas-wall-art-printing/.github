@@ -4,7 +4,7 @@ Canvas wall art printing has become one of the most popular choices for interior
 
 Whether you want to display family memories, abstract designs, or brand visuals, canvas prints offer a timeless and artistic solution.
 
-## [Canvas Wall Art Printing] (https://artplus.cc/canvas-printing/)
+## [Canvas Wall Art Printing (https://artplus.cc/canvas-printing/)] 
 
 ## What is Canvas Wall Art Printing?
 
